@@ -13,6 +13,8 @@ Take control of your weight loss journey with LeanBiome and experience real resu
 
 **[LeanBiome® | Get 75% Off Official Website](https://lean.leanebiome.com/)**
 
+![MITOLYN Image 3](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse3.explicit.bing.net%2Fth%3Fid%3DOIP.ry83vu8NDsUZkKVFEGqIigHaEg%26pid%3DApi&f=1&ipt=8ceedf49bd8c65c344a874f0b6c953dc54d9f606a1251437b5e5b5d49fbea0d2&ipo=images)
+
 ## What Is Leanbiome™?
 
 LeanBiome is a scientifically formulated sports nutritional supplement designed to support gut health and enhance overall nutrition. Offered in various formats, including sachets, bakery products, and snack bars, Lean-Biome is developed by OptiBiotix, a company specializing in microbiome modulation and functional food ingredients.
