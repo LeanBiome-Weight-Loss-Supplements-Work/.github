@@ -83,6 +83,8 @@ This product comes with a 180-day money-back guarantee from the date of purchase
 
 We will process a full refund within 48 hours of receiving the returned product. Yes, you can return LeanBiome, including empty bottles, within 180 days of purchase for a complete, no-questions-asked refund.
 
+![LEANBIOME Image 1](https://leanbiome.leanebiome.com/assets/images/180-days-money-back-guarantee-800x796.webp)
+
 ## Benefits of LeanBiome Supplement
 
 - **Promotes Gut Health**: LeanBiome helps establish a balanced gut flora, fostering a friendly probiotic environment. It enhances the diversity of the gut microbiome and supports normal bowel habits without adverse side effects.
