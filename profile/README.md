@@ -1,4 +1,6 @@
-# LeanBiome® | Official Website
+# LeanBiome Weight Loss Supplements Work
+
+![LEANBIOME Image 1](https://us-leanbiome-us.com/assets/images/leanbiome.png)
 
 LeanBiome is a scientifically backed supplement designed to help you lose weight by addressing the root causes of fat accumulation. With a powerful blend of probiotics, plant-based extracts, and natural ingredients, LeanBiome promotes healthy weight management—no extreme diets or intense workouts required.
 
@@ -12,8 +14,6 @@ Take control of your weight loss journey with LeanBiome and experience real resu
 **Current Price:** $39 per bottle
 
 **[LeanBiome® | Get 75% Off Official Website](https://lean.leanebiome.com/)**
-
-![MITOLYN Image 3](https://bestleanlife.com/cb/img/bottle.png)
 
 ## What Is Leanbiome™?
 
