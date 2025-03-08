@@ -13,7 +13,7 @@ Take control of your weight loss journey with LeanBiome and experience real resu
 
 **[LeanBiome® | Get 75% Off Official Website](https://lean.leanebiome.com/)**
 
-![LEANBIOME Image 1](https://us-leanbiome-us.com/assets/images/leanbiome.png)
+![LEANBIOME Image 1](https://leanbiome.leanebiome.com/assets/images/leane-biome-3-bottles-600x521.png)
 
 ## What Is Leanbiome™?
 
