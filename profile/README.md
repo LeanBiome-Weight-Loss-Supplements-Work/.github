@@ -1,4 +1,4 @@
-# LeanBiome Weight Loss Supplements Work
+# LeanBiome-Weight-Loss-Supplements-Work
 
 LeanBiome is a scientifically backed supplement designed to help you lose weight by addressing the root causes of fat accumulation. With a powerful blend of probiotics, plant-based extracts, and natural ingredients, LeanBiome promotes healthy weight management—no extreme diets or intense workouts required.
 
